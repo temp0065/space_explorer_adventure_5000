@@ -1,1 +1,1 @@
-Qwuart blows his horn and goblin barrels strike the enemy fleet. The opponents are in shambles and have no idea what just happened.
+Qwuart blows his horn and goblin barrels strike the enemy fleet. The opponents are in shambles and have no idea what just happened. The allies rush in and turn the fight over. The goblin village is safe. You have done well.
