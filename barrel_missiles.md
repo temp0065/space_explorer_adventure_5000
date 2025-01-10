@@ -1,1 +1,1 @@
-Qwuart blows his horn and goblin barrels strike the enemy fleet. The opponents are in shambles and have no idea what just happened.
+Qwuart blows his horn and goblin barrels strike the enemy fleet. The opponents are in shambles and have no idea what just happened. Qwuart's goblin barrels have caused a third of the enemy fleet to go down in flames.
