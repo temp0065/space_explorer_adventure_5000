@@ -2,6 +2,8 @@ Qwuart "the ultimate goblin" Chester is defending his home planet Z-12P against 
 
 How should he defend the city?
 
+[Bring a blowdryer to battle](blowdryer.md)
+
 [Assemble a team](assemble.md)
 
 [Charm the penguin leader](charm.md)
