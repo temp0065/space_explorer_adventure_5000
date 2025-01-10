@@ -1,0 +1,2 @@
+Qwuart Chester decides to take advantage of the evil penguin space barbarians weakness, prolonged heat exposure. He scurries home to
+steal his sisters beloved wireless blowdryer, with a charged battery intact. Qwuart is coming in hot.
