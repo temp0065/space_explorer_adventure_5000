@@ -1,0 +1,1 @@
+Qwuart Chester realizes how desperate times will be if he doesn't act soon, and decides to call some old roommates, Hyphlegious the 120th, Zaffroy Gluy, and Paul, from when he was in goblin school.

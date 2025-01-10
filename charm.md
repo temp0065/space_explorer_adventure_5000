@@ -1,0 +1,1 @@
+Qwuart uses his built in goblin charm to seduce the penguins leader. Qwuart prepares a ring embedded with the diamond of the great Queen gobletta the IV discovered during the gilded age.
