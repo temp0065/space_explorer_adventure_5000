@@ -7,3 +7,5 @@ How should he defend the city?
 [Assemble a team](assemble.md)
 
 [Charm the penguin leader](charm.md)
+
+[Launch goblin missiles](barrel_missiles.md)
