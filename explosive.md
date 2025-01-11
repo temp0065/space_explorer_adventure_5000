@@ -1,0 +1,1 @@
+Qwuart adds a miniature nuclear bomb inside the diamond destroying the penguins during their wedding. Qwuart dies during the sacrifice.
