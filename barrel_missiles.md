@@ -1,1 +1,1 @@
-After sneaky inside the enemy base to propose. Qwuart blows his horn and goblin barrels strike the enemy fleet. The opponents are in shambles and have no idea what just happened.
+After sneaking inside the enemy base to propose. Qwuart blows his horn and goblin barrels strike the enemy fleet. The opponents are in shambles and have no idea what just happened.
